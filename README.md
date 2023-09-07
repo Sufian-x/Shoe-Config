@@ -1,1 +1,2 @@
-![Screenshot (18)](https://github.com/Sufian-x/Shoe-Config/assets/84394500/8a7274ea-2ab5-4793-9146-dad92f27eab4)
+![Screenshot 2023-09-08 010103](https://github.com/Sufian-x/Shoe-Config/assets/84394500/84b1a59e-b740-4cda-9961-c37fbaf2a880)
+![Screenshot 2023-09-08 010154](https://github.com/Sufian-x/Shoe-Config/assets/84394500/999b848d-2654-4c83-a822-1cb31125449a)
